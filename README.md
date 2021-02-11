@@ -1,3 +1,4 @@
+- Job Preview: [![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/NYJU8ZB-8eA/0.jpg)](https://www.youtube.com/watch?v=NYJU8ZB-8eA)
 
 ## Quy trình trồng trọt.
 
